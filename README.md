@@ -1,2 +1,2 @@
 # introduce myself
-你好，我正在學習韓語。我的Instagram帳號是kanglepark。我的G-mail是gangm3670@gmail.com。
+안녕하세요, 저는 민주입니다. instagram은 kanglepark, 메일은 gangm3670@gmail.com 입니다.
